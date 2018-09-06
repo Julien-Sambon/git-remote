@@ -1,1 +1,1 @@
-Just for the quest.
+Hello. Just for the quest.
